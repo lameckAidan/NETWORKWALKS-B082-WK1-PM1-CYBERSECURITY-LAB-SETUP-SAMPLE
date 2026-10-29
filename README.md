@@ -289,8 +289,8 @@ This laboratory is intended strictly for education purposes only.
 
 # 👤 Author
 
-**Lameck Aidan**\
-Cybersecurity Professional B082
+**Lameck Aidan Chengula**\
+Cybersecurity Intern B085
 
 LinkedIn: [https://www.linkedin.com/in/lameck-aidan-17087a435?utm_source=share_via&utm_content=profile&utm_medium=member_ios/](https://www.linkedin.com/in/lameck-aidan-17087a435?utm_source=share_via&utm_content=profile&utm_medium=member_ios/)
 
